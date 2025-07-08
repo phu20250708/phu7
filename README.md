@@ -10,4 +10,4 @@
 
 本站提供最新的高清精品视频，涵盖日韩、无码、精品等多类题材。支持流畅播放、高清画质，适配所有设备，旨在为您带来优质无广告的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu7 ）</span>
